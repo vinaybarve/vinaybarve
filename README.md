@@ -16,11 +16,11 @@
 
 - 📫 How to reach me **vinaybarve40@gmail.com**
 
-- 👨‍💻 My Portfilio [Click here](https://lipan1437.github.io/)
+- 👨‍💻 My Portfilio [Click here](https://vinaybarve.github.io/)
 
-- 👀 My Github Repositories [Click here](https://github.com/lipan1437?tab=repositories)
+- 👀 My Github Repositories [Click here](https://github.com/vinaybarve?tab=repositories)
 
-- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1GVua_3kW2MZGUMdGNApSG-m6lu-fDwXW/view?usp=share_link)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1FVk3PDung7niTOSVelffCagOt5wpHI-5/view?usp=share_link)
 
 - ⚡ Fun fact **I think I am funny**
 
